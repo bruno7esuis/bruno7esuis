@@ -1,4 +1,4 @@
-Profissional / Hard Skills
+## Profissional / Hard Skills
 
 ### Vida acadêmica:
 
